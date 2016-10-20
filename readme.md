@@ -1,2 +1,2 @@
 Salut la planète
-Je vais bien
+Je vais bien /!\
